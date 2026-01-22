@@ -18,5 +18,3 @@
 <sub>$\color{#a22767}{\textsf{and maybe sign ata if u want...}}$
 
 <sub>[straw](https://pisskinkman69.straw.page) // [ata](https://urine.atabook.org/?page=1)
-
-<p align="right"><sub>gh pfp and strawpage was supposed to be dedicated to MSI, but nvm :-/
