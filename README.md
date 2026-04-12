@@ -1,4 +1,4 @@
-<sub>[Strawpage](https://ungrateful-twat.straw.page/) , [Ata](https://bootyyyshaker9000.atabook.org/)
+<sub>[Strawpage](https://ungrateful-twat.straw.page/) , [Ata](https://cicadas.atabook.org/)
 
 ![image alt](https://file.garden/ade0uRrc7hT3IuzM/Untitled286_20260403113607.png)
 
