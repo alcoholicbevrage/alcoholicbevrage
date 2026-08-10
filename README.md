@@ -4,7 +4,7 @@
 <details>
   <summary> <p align="center"> Introduction wipppppp </summary>
   
-<sub> Hi, I'm a mentally ill and edgy teenager, i dont really do much in ponytown except hang out with my friends and/or chill around. im mostly dry and a bit more blunt with people i just met and friends I'm not close to. im usually kind though, so dont worry. i tend to act mean as a joke (i think)
+<sub> Hi, I'm a mentally ill and edgy teenager, i dont really do much in ponytown except hang out with my friends and/or chill around. im mostly dry and a bit more blunt with people i just met and friends I'm not close to. im usually kind though, so dont worry. i tend to act mean as a joke (i think).. anyways, c+h freely and w2i bcus im sometimes afk
 
 <sub> im interested in mental health/psychology (idk anymor), and a few visual novels. i dont talk about my interests often
 
