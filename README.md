@@ -4,9 +4,7 @@
 <details>
   <summary> <p align="center"> Introduction wipppppp </summary>
   
-<sub> Hi, I'm a mentally ill teenager, i dont really do much in ponytown except hang out with my friends and/or chill around. im mostly dry and a bit more blunt with people i just met and friends I'm not close to. im usually kind though, so dont worry. I don't have a DNI list, I block/hide freely.
-
-<sub> i have a tendency to act mean as a joke, name call (negatively), and i joke about violence, gutting, cannibalism a lot.
+<sub> Hi, I'm a mentally ill and edgy teenager, i dont really do much in ponytown except hang out with my friends and/or chill around. im mostly dry and a bit more blunt with people i just met and friends I'm not close to. im usually kind though, so dont worry. i tend to act mean as a joke (i think)
 
 <sub> im interested in mental health/psychology (idk anymor), and a few visual novels. i dont talk about my interests often
 
