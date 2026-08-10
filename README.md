@@ -4,17 +4,21 @@
 <details>
   <summary> <p align="center"> Introduction wipppppp </summary>
   
-<sub>Hello!! my name is Anon, Phil, or Sano (or whatever u wanna call me), I'm a mentally ill 15 y/o Filipino begginer artist :33. im not rly good at socialising aand i can be a bit dry/awkward, quiet, and unresponsive with ppl im not close to.. I like watching youtube shorts (tiktok's a bit infuriating) and drawint and unm idfk. anyways im almost always offtab so w2i, c+h is always encouraged!!
+<sub> Hi, I'm a mentally ill teenager, i dont really do much in ponytown except hang out with my friends and/or chill around. im mostly dry and a bit more blunt with people i just met and friends I'm not close to. im usually kind though, so dont worry. I don't have a DNI list, I block/hide freely.
 
-<sub>i fictkin Sano Kojima, Rasmus, nd Peter Dunbar (goth phase :drool), idm sharing lalal.. ok idk what else to add
+<sub> i have a tendency to act mean as a joke, name call (negatively), and i joke about violence, gutting, cannibalism a lot.
 
-<sub> :3 :3 :3 :3
+<sub> im interested in mental health/psychology (idk anymor), and a few visual novels. i dont talk about my interests often
+
+<sub> uhhhhhmm i fictkin Rasmus, Damon, Sano Kojima, and Goth!Peter Dunbar.
+
+<sub> i dont like this. anyways i draw, i like drawing.. i listen to music as well, check my strawpage to see the music i listen to (lazy to list)
 
 </details>
 
 ___
 
 <p align="center"> <sub> $\color{#360000}{\textsf{(henlo.. maybe sign my straw/ata...)}}$
-<p align="center"><sub><a href="https://mentally-unwell.straw.page/">strawpage ꒰ঌ(˶ˆᗜˆ˵)໒꒱</a></p>
-<p align="center"><sub><a href="https://sano.atabook.org/">atabook (っ´ω`ｃ)</a></p>
-<p align="center"><sub><a href="https://guns.lol/mentally_ill">socials ⛧⃝𓄃</a></p>
+<p align="center"><sub><a href="https://mentally-unwell.straw.page/">strawpage</a></p>
+<p align="center"><sub><a href="https://sano.atabook.org/">atabook</a></p>
+<p align="center"><sub><a href="https://guns.lol/mentally_ill">socials</a></p>
