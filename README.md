@@ -1,18 +1,7 @@
 ## I made this out of boredom
 [![Alt Text](https://file.garden/ade0uRrc7hT3IuzM/Untitled%204.gif)](https://www.youtube.com/watch?v=legEvBvw2f4)
 
-<details>
-  <summary> <p align="center"> Introduction wipppppp </summary>
-  
-<sub> Hi, I'm a mentally ill and edgy teenager, i dont really do much in ponytown except hang out with my friends and/or chill around. im mostly dry and a bit more blunt with people i just met and friends I'm not close to. im usually kind though, so dont worry. i tend to act mean as a joke (i think).. anyways, c+h freely and w2i bcus im sometimes afk
-
-<sub> im interested in mental health/psychology (idk anymor), and a few visual novels. i dont talk about my interests often
-
-<sub> uhhhhhmm i fictkin Rasmus, Damon, Sano Kojima, and Goth!Peter Dunbar.
-
-<sub> i dont like this. anyways i draw, i like drawing.. i listen to music as well, check my strawpage to see the music i listen to (lazy to list)
-
-</details>
+rest of my information went to strapage
 
 ___
 
