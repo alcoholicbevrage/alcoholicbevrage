@@ -1,7 +1,7 @@
-## I made this out of boredom
+## will remake readme soon,,
 [![Alt Text](https://file.garden/ade0uRrc7hT3IuzM/Untitled%204.gif)](https://www.youtube.com/watch?v=legEvBvw2f4)
 
-rest of my information went to strapage
+rest of my information went to strapage yay
 
 ___
 
