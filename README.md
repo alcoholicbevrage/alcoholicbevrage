@@ -1,8 +1,10 @@
 ## will remake readme soon,,
-[![Alt Text](https://file.garden/ade0uRrc7hT3IuzM/Untitled%204.gif)](https://www.youtube.com/watch?v=legEvBvw2f4)
+<p align="center">
+  <img src="https://file.garden/ade0uRrc7hT3IuzM/72c18762542d39804e6f51ce3c33095d.jpg" alt="Centered Image" width="800">
+</p>
 
-rest of my information went to strapage yay
 
+not minne... ill draw soon
 ___
 
 <p align="center"> <sub> $\color{#360000}{\textsf{(henlo.. maybe sign my straw/ata...)}}$
