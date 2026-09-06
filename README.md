@@ -1,10 +1,11 @@
-## will remake readme soon,,
+## 🥩🪽
 <p align="center">
-  <img src="https://file.garden/ade0uRrc7hT3IuzM/72c18762542d39804e6f51ce3c33095d.jpg" alt="Centered Image" width="800">
+  <img src="https://file.garden/ade0uRrc7hT3IuzM/redo.png" alt="Centered Image" width="800">
 </p>
 
 
-not minne... ill draw soon
+good mornie☀️☀️☀️☀️🌸🌸🌸🌹🌹🌼🌻🪻🏵️🐓🐓🐓🐔🐥🕊️
+im gohna rmk thes soon
 ___
 
 <p align="center"> <sub> $\color{#360000}{\textsf{(henlo.. maybe sign my straw/ata...)}}$
